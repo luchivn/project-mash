@@ -1,1 +1,1 @@
-just games I wanted to recreate🎮
+random projects I wanted to give a shot👈
